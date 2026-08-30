@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I'm currently learning PHP and Networking Fundamentals<br>💬 Ask me about my projects!<br>⚡ I'm learning Spanish!
+🌱 Currently learning Networking <br>💬 Talk to me about coffee!<br>⚡ How many languages do you know?
 
 
 ## 🌐 Socials:
