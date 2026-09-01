@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 Currently learning Networking <br>💬 Talk to me about coffee!<br>⚡ How many languages do you know?
+🌱 Currently learning Networking <br>💬 I'm also interested in fashion design!<br>⚡ Do you know any other languages? 
 
 
 ## 🌐 Socials:
