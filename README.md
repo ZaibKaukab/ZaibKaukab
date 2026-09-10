@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 Currently learning Networking <br>💬 I'm also interested in fashion design!<br>⚡ Do you know any other languages? 
+🌱 Currently studying Networking and Cybersecurity! <br>💬 I'm interested in creative direction and making clothes!<br>⚡ Reach out for anything!
 
 
 ## 🌐 Socials:
